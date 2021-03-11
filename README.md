@@ -7,3 +7,7 @@ https://www.topmarq.com/car-shows/tx/houston
 
 Car wrap cost article:
 https://www.topmarq.com/articles/how-much-does-a-good-car-wrap-cost-30
+
+Luxury car listings that are privately for sale vs. from the dealer. 
+
+https://www.topmarq.com/listings/luxury-cars-for-sale
